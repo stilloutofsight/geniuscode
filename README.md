@@ -1,3 +1,0 @@
-# geniuscode
-
-qwe
